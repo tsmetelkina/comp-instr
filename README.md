@@ -4,6 +4,7 @@
 
 ![alt text](https://upload.wikimedia.org/wikipedia/ru/5/50/%D0%93%D1%80%D0%B5%D0%BC%D0%BB%D0%B8%D0%BD%D1%8B.jpg "постер")
 
+Не всем критикам понравилось:
 > "The plot is thin and the pacing is askew"
 
 
